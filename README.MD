@@ -10,3 +10,6 @@
 
 ## Kesan Pesan Cluster 12 Sejauh Ini 
 [Cluster 12 asik dan fasil nya ramah banget goks deh pokoknya]
+
+## Harapan Kuliah 
+[lulus tepat waktu dan memiliki banyak prestasi] 
